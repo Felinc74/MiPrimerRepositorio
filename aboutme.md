@@ -3,7 +3,7 @@
 Si estás aquí es porque quieres saber un poco más de mi.
 Me llamo Feli, tengo más de medio siglo y soy nueva en todo ésto, pero como dicen, **nunca está de más aprender una cosa más**.\
 <br>
- ![YesIAm](/img/felinogales.jpg)
+ ![YesIAm](/img/felinogales.jpeg)
 <br>
 Quizás me haya adentrado en una de las empresas más importantes de mi vida, reconstruir una vida, darle un giro de 180 grados
 y llegar a concretar algunas metas en la vida.
