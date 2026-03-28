@@ -15,6 +15,7 @@ Como amante activa de las letras, a continuación dejo un enlace donde derramo u
 Espero que te guste lo que vas a leer.
 <br>
 Gracias por llegar hasta aquí.
-<br>
+
+
  ![YesIAm](/img/felinogales.jpeg)
-<br>
+
